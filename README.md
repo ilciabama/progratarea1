@@ -1,2 +1,10 @@
 # progratarea1
-tarea
+tareal
+hola 
+stay home
+♥♥♥♥♥
+☻☻☻☻☻
+☺☺☺☺☺
+♠♠♠♠♠♠
+hello
+new person
